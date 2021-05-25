@@ -1,4 +1,4 @@
-# Pepperoni Pizza :gun: :gun: 
+# Pepperoni Pizza :pizza: 
 
 ## Ingredients
 
